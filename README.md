@@ -7,3 +7,4 @@ I am passionate about the startup space, and leveraged this by studying entrepre
 Moreover, I care deeply about technology and am an avid supporter of projects that use technology to leverage results that are industry-scale, design-driven, and have a community development impact, all the while driving business results.
 
 For more information you can find me at LinkedIn or at my resume.
+www.linkedin.com/in/eduardojacobuspezzi/
