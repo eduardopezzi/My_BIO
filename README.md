@@ -1,6 +1,6 @@
 # My_BIO >>>>>> EDUARDO PEZZI
 
-I am a professional with over 15 years of experience in commercial operations management. During this time, I’ve honed my soft skills through experience on the retail side, and developed critical and analytical skills on the business management side. 
+With more than 15 years of experience in technology and retail made me an unique professional with great soft skills and technical skills balance. During this time, I’ve honed my communication and leadership skills through experience in retail, developed critical and analytical skills by managing operations, and gained software programming skills while teaming up in mobile and decentralized web application projects.
 
 I am passionate about the startup space, and leveraged this by studying entrepreneurship at UC Berkeley and Blockchain Development at George Brown College. At the latter, I increased my proficiency in full-stack development and went on to earn the Citizenship Award for active engagement in the blockchain community. 
 
